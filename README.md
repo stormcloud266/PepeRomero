@@ -1,4 +1,2 @@
 # Pepe Romero
-
-###### get into it
-[Pepe Solos](https://www.youtube.com/watch?v=_XfhRqm4iIM)
+[get into it](https://www.youtube.com/watch?v=_XfhRqm4iIM)
